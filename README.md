@@ -1,0 +1,2 @@
+# nenad
+Upornost se isplati
